@@ -47,7 +47,7 @@
 --- -->
 
 ## 📫 Let's Connect!  
-💼 [LinkedIn]([https://linkedin.com/in/your-profile](https://www.linkedin.com/in/vasudeva-rao98/))  
+💼 [LinkedIn]([https://www.linkedin.com/in/vasudeva-rao98/])  
 
 ---
 
